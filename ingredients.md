@@ -1,4 +1,4 @@
-Butter - 150 gram
+Butter - 100 gram
 
 maida - 2cups
 
